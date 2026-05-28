@@ -93,11 +93,5 @@ I'll post the Loom video + live Gumloop link here once v1 is live.
 - Run live on Wynter + publish sample outputs
 - Open to feedback from the Wynter team
 
-**Want to see it live?** DM me or apply me and I'll give you access to the Gumloop workflow.
+**Built with ❤️ (and a proud tokenmaxxer!!!!!!) for Wynter**
 
----
-
-**Built with ❤️ (and a lot of tokens) for Wynter**
-
-— Yash  
-Applying for AI Native Growth Marketer
